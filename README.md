@@ -6,6 +6,8 @@ https://mammoth-metal-buildings.github.io/email-signature/jeremy
 
 https://mammoth-metal-buildings.github.io/email-signature/michael
 
+https://mammoth-metal-buildings.github.io/email-signature/michael_mobile
+
 https://mammoth-metal-buildings.github.io/email-signature/andrew_snyder
 
 https://mammoth-metal-buildings.github.io/email-signature/jack_patterson
